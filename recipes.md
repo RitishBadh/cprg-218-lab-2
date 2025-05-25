@@ -113,3 +113,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+ 
+### Classic Brownies
+Ingredients:
+- 1/2 cup unsalted butter
+- 1 cup white sugar
+- 2 eggs
+- 1 tsp vanilla extract
+- 1/3 cup unsweetened cocoa powder
+- 1/2 cup all-purpose flour
+- 1/4 tsp salt
+- 1/4 tsp baking powder
+
+Instructions:
+
+1. Preheat oven to 350°F (175°C). Grease a 9x9-inch baking pan.
+2. Melt butter in a saucepan over low heat. Remove from heat and stir in sugar, eggs, and vanilla.
+3. Beat in cocoa, flour, salt, and baking powder until well combined.
+4. Spread the batter evenly into the prepared pan.
+5. Bake for 20 to 25 minutes or until a toothpick inserted comes out with moist crumbs.
+6. Let cool in the pan before cutting into squares.
