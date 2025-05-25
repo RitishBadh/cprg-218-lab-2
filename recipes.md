@@ -28,6 +28,30 @@ Instructions:
 4. Bake for 20-25 minutes or until lightly browned and bubbly.
 5. Serve hot with tortilla chips, pita chips, or crackers.
 
+
+### Stuffed Mushroom Caps
+Ingredients:
+
+- 1 pound white button mushrooms, stems removed
+- 2 tablespoons olive oil
+- 1/2 cup cream cheese, softened
+- 1/4 cup grated Parmesan cheese
+- 2 cloves garlic, minced
+- 2 tablespoons fresh parsley, chopped
+- Salt and pepper to taste
+- Optional: 1/4 cup breadcrumbs for a crispy topping
+
+Instructions:
+
+1. Preheat oven to 375°F (190°C).
+2. Clean mushrooms and remove stems. Set caps aside and finely chop the stems.
+3. In a skillet, heat olive oil over medium heat. Sauté chopped mushroom stems and garlic for 3–4 minutes until soft.
+4. In a bowl, mix sautéed stems, cream cheese, Parmesan, parsley, salt, and pepper.
+5. Spoon the mixture into the mushroom caps.
+6. (Optional) Sprinkle breadcrumbs on top for added crunch.
+7. Arrange stuffed caps on a baking sheet and bake for 15–20 minutes, until golden and bubbly.
+8. Serve warm.
+
 ### Bruschetta
 
 Ingredients:
